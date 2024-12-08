@@ -1,0 +1,2 @@
+# StronaOdChemiiLIcbaAvogardoMol
+Strona Od Chemii 
